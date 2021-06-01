@@ -1,1 +1,1 @@
-# group20.ignorelist.com
+choko filha da puta
